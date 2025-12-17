@@ -1,2 +1,2 @@
-## Hi there 👋
-Just a dumb guy that knows too much
+## Hi there
+Just a dumb guy with a skill to learn
